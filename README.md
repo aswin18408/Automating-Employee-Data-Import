@@ -145,7 +145,7 @@ Improves incident resolution efficiency
 
 project demo video link:
 
-https://drive.google.com/file/d/1Qb3px_OQn0fHxXZtNwFy1oODn0qU_7gP/view?usp=drive_link
+https://drive.google.com/file/d/1PCuQcJIuqoQmIwI5wM5YX9awZkNcuzGq/view?usp=drive_link
 
 TEAM PROJECT:"NAAN MUDHALVAN"
 
